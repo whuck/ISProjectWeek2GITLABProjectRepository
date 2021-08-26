@@ -1,3 +1,5 @@
 Andre Pells
 Pells.md
 Art + Writing
+
+> POSITIVELY ENTHUSIASTIC YOUNG MAN 0 STUDENT B
